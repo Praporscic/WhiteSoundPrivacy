@@ -79,8 +79,8 @@ We may update this policy from time to time, for example if the app's use of adv
 
 If you have questions about this privacy policy, contact:
 
-**[Your name or business name]**
-Email: [your contact email]
+**Silence - White Noise for Sleep**
+Email: praporsciciurii@gmail.com
 
 ---
 
